@@ -97,4 +97,4 @@ Analytical modeling
 ## Author
 
 Akashdeep Mukherjee  
-Finance Graduate
+Finance Student | M.Com Finance, Narsee Monjee College, Mumbai
